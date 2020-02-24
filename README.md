@@ -1,1 +1,1 @@
-# psdnk-photography
+# psdnk-photography.github.io
